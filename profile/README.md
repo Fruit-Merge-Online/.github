@@ -4,7 +4,7 @@
 
 **Fruit Merge** is an **addictive hyper casual puzzle game** where your mission is to merge matching fruits into larger, juicier combos. From apples to epic watermelons, each match gets more intense and satisfying. It’s a **funny, fast-paced**, and **visually vibrant game** perfect for relaxing or competing with friends.
 
-## <a href="https://1kb.link/hgzeGq">👉 Click To Play Fruit Merge Unblocked 👈</a>
+## <a href="https://1kb.link/eF3ZCH">👉 Click To Play Fruit Merge Unblocked 👈</a>
 
 ---
 
